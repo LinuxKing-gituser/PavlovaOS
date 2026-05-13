@@ -3,9 +3,10 @@ Thank you for choosing PavlovaOS! We truly appreciate your choice. Check the rel
 
 ( im very thankful to be apart of illustrating the logo and the mascot, i hope this OS is sucessful! XD, xy)
 
-and uhh another note :P
+and uhh another note from one of my devs :P
 
-(pluhhh! Luka, live with love!, dann)
+(yo! LUKA live with love, Thank you for being the victim of my shallow emotions, my god my universe, dann)
 yeaa :)))
-|
-\___ Sincerely, from the land of devlust
+
+Pluhhhh
+Sincerely, from the land of devlust
