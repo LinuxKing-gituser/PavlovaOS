@@ -9,4 +9,6 @@ and uhh another note from one of my devs :P
 yeaa :)))
 
 Pluhhhh
-Sincerely, from the land of devlust
+Sincerely, from the land of devlust!
+
+we all love harp seals
